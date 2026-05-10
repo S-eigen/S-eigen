@@ -1,4 +1,4 @@
-## Hi, I'm Sara Parassat
+## Hi, I'm Sara Zhanturina
 
 Data Analyst | Vancouver, BC
 
